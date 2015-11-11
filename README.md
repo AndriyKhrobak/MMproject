@@ -1,2 +1,0 @@
-# MMproject
-Make money, bitch
